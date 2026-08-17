@@ -18,3 +18,7 @@ in Jalisco. I like traveling to Mexico and it ´ s the best thing for me to see 
 since my grandparents are getting older I want to be with them before it's too late.
 
 Some things that I like to do for my free time is being a part of the schools band. 
+
+
+Playlist
+[pictures] (https://www.canva.com/design/DAHSkGxI7uM/uVLlbMyYR8om3dGRBdnbhQ/edit?ui=e30)
