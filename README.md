@@ -20,7 +20,7 @@ since my grandparents are getting older I want to be with them before it's too l
 Some things that I like to do for my free time is being a part of the schools band. 
 
 
-Playlist
+[Playlist](https://open.spotify.com/playlist/4nR6GvCafrDVFpqOcYeAEq?si=z8SAiIhbRSWuYtD6D4h-yg&utm_source=native-share-menu&pi=Xbt96j6-Qa-k7&sci=spotify%3Acard-config%3A5rb8Xuyw5mO0RzBvCY5qLh)
 
 [pictures](https://www.canva.com/design/DAHSkGxI7uM/uVLlbMyYR8om3dGRBdnbhQ/edit?ui=e30)
 
