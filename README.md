@@ -14,7 +14,7 @@ Something about myself is that I am Mexican American both my parents are from Me
 my dad lived in the U.S and my mom lived in Mexico and so they both decided to move to the U.S. and I was 
 born here. So when I was born my dad's side of the family lived here and my mom family lives in mexico. Every
 This year my family tries to go to mexico to visit my mom's side of the family. They live in a small pueblo
-in [Jalisco](https://www.britannica.com/place/Jalisco.Png). I like traveling to Mexico and it ´ s the best thing for me to see my family every year and
+in [Jalisco](https://www.britannica.com/place/Jalisco.). I like traveling to Mexico and it ´ s the best thing for me to see my family every year and
 since my grandparents are getting older I want to be with them before it's too late.
 
 Some things that I like to do for my free time is being a part of the schools band. It ´ s one of my favorite 
