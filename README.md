@@ -17,7 +17,7 @@ This year my family tries to go to mexico to visit my mom's side of the family. 
 in [Jalisco](https://www.britannica.com/place/Jalisco). I like traveling to Mexico and it ´ s the best thing for me to see my family every year and
 since my grandparents are getting older I want to be with them before it's too late.
 
-Some things that I like to do for my free time is being a part of the schools band. It ´ s one of my favorite 
+Some things that I like to do for my free time is being a part of the schools [band](https://www.freyphotos.com/Marching-Band-Photos/2025-Marching-Bands/October-25th-2025-SCSBOA-All-Valley-Band-Tournament/Chatsworth-Charter-HS). It ´ s one of my favorite 
 things to do and even though I am not that good I feel like I still do my best on the football field and try
 by best every time I practice. Band is one of the most fun things I am doing in high school and I am going to 
 do it for all four years. Another thing about me is that I love lizards and I always wanted one for a pet but
